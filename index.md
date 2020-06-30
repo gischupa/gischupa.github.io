@@ -11,3 +11,12 @@ Ein Abbtraum auf 2 Beinen - und was für welchen ....
 * Mathe-Feak
 * liebt Vanille-Eis mit Mandelsplittern
 
+## Ihr Motto
+
+> Wenn Susi vor einem Problem steht, lautet ihr Mantra:
+> 
+> Versuche Teil der Lösung zu sein, nicht Teil des Problems
+> und wenn beim Fehlverhalten anderer Dummheit als Erklärung
+> genügt, dann sollte man nicht von Bosheit ausgehen.
+
+
