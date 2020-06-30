@@ -19,4 +19,5 @@ Ein Abbtraum auf 2 Beinen - und was für welchen ....
 > und wenn beim Fehlverhalten anderer Dummheit als Erklärung
 > genügt, dann sollte man nicht von Bosheit ausgehen.
 
+<img src="https://cdn.pixabay.com/photo/2020/04/18/16/07/wolf-5059788_960_720.jpg" />
 
